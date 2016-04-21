@@ -1,1 +1,1 @@
-# ArrayDemo
+CloudClass ID: Magina2015
